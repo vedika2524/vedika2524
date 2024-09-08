@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @vedika2524
-- 👀 I’m interested in ...Software Development
 - 📫 How to reach me ... vedikasoni911@gmail.com
   
 
